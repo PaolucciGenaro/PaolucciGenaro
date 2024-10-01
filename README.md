@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @PaolucciGenaro
+- 👀 I’m interested in Information technology
+- 🌱 I’m currently learning Computer Science
+- 📫 How to reach me https://www.linkedin.com/in/paoluccigenaro/
